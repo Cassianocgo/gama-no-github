@@ -1,0 +1,1 @@
+O curso é bem didatico e ótimo !
